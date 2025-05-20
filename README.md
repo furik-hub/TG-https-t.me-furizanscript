@@ -1,1 +1,0 @@
-# TG-https-t.me-furizanscript
